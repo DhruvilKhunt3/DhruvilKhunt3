@@ -1,3 +1,4 @@
+![Image](https://github.com/user-attachments/assets/5b32e553-8b48-475f-9ec0-a923723acba0)
 # 💫 About Me:
 🤝 I’m looking for help<br>🌱 I’m currently learning everything 
 
